@@ -7,7 +7,7 @@
 *Have fun!*
 
 **Give it a try your own**
-[YouTube tutorial](https://www.youtube.com/watch?v=n4dtwWgRueI)
+ => [YouTube tutorial](https://www.youtube.com/watch?v=n4dtwWgRueI)
 *Try to understand what he is doing, and he is fast, I know!*
 
 ---
